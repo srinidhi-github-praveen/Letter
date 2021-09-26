@@ -1,3 +1,5 @@
+![Banner](https://i.imgur.com/buhfXkY.png)
+
 Respected WHOEVER,
 
 As I am suffering from fever, I would like you to grant few days of leave from DATE to DATE.
